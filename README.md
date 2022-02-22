@@ -1,3 +1,3 @@
 # bio4
 Bio take 4
-I like 🧗‍♀️, 🔫 and 🚂
+I like 🎽 🔫 and 🚂 plus 🍨
